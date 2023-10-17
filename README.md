@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sahilm416
+- 👋 Hi, I’m sahil
 - 💞️ I’m looking to collaborate on some creativity based projects ⭐
 - 📫 you can mail me at "sahilmulani501@gmail.com" 
 
